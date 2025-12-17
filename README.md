@@ -9,6 +9,6 @@
    * Acompaña una presentación con lo explorado en precios y comparación con Encarnación Paraguay.
    
    ### Se adjunta el Informe Productos Navidad 
-   [[Infome Precios comparados y Recomendaciones]( https://www.perplexity.ai/search/examina-exhaustivamente-los-pr-UuoPyaSbSNmDdJi7Wxervw?preview=1#0)]
+   [[Infome Precios comparados y Recomendaciones]( https://docs.google.com/document/d/1_z1dYTrnXScAYGSU344ErU0gQCrUTubdZZDyI0gFf80/edit?usp=sharing)]
    ### Presentaciones armadas
    [[Presentaciones sobre Precios comparados y Recomendaciones](https://gamma.app/docs/Analisis-de-Precios-Navidenos-Posadas-vs-Encarnacion-2025-vd0toi278jkxo35 )]
